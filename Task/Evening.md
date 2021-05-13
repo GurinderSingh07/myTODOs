@@ -1,3 +1,3 @@
 # Evening task
 
-Your evening task is to go gym at 5:30.
+Your evening task is to go gym at 8:30.
